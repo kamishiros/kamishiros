@@ -1,1 +1,5 @@
-ruikito ceo and no. 1 fan dni and block me if you think you're a bigger ruikito fan than i am because youre not. rui and akito irl real life puppyboy/catboy don't believe otherwise. hearts for all my oomfs!
+
+<p align="center">
+  <img src="https://file.garden/aqVrTeQVGY8PbHHu/Untitled237_20261001152825.png" />
+  
+</p>
