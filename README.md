@@ -1,13 +1,1 @@
-<p align="center">
- <img src="https://files.catbox.moe/uqgo7q.png" width="300">
-</p>
-
-<p align="center">
-  he　　him
-</p> 
-
-
-
-> ruikito number one fan — no you are not a bigger ruikito fan than me ,
-
->  block me if you think otherwise.
+ruikito ceo and no. 1 fan dni and block me if you think you're a bigger ruikito fan than i am because youre not. rui and akito irl real life puppyboy/catboy don't believe otherwise. hearts for all my oomfs!
